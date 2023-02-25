@@ -1,1 +1,1 @@
-https://github.io/dimash95/momentum/
+https://Dimash95.github.io/momentum/
